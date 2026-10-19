@@ -1,1 +1,0 @@
-# jordanpricegey.github.io
